@@ -1,7 +1,7 @@
 [you v. the grand - CRCCP Form 2 Complaint Under Simplified Civil Procedure R8-18.docx](https://github.com/thegrandisgoingdown/fuckthegrand/files/9244381/you.v.the.grand.-.CRCCP.Form.2.Complaint.Under.Simplified.Civil.Procedure.R8-18.docx)
 
 
-Welcome to the template for filing a lawsuit for less than $25,000 against The Grand/Greystar in Denver County Court! 
+Welcome to the template for filing a lawsuit for less than $25,000 against The Grand/Greystar in Denver County Court! Click the above link to download and get started! 
 
 This template sets forth facts for claims of breach of contract, detrimental reliance/promissory estoppel, and intentional infliction of emotional distress. Delete facts that don't apply to you or that you don't want to claim. Add facts as needed. Modify sections with information specific to you. 
 
