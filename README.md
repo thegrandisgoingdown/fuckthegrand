@@ -31,4 +31,3 @@ https://casetext.com/rule/colorado-court-rules/colorado-rules-of-civil-procedure
 Will update as more resources are created and feedback and information from those choosing to sue is received. 
 
 Good luck!
-![image](https://user-images.githubusercontent.com/109106681/182462579-2b18c12e-eae8-42da-9127-b7e7f9b0992f.png)
